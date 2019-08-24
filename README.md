@@ -1,3 +1,0 @@
-# hello-world
-hi fuckers ,
-this is vivek.i am new to the world of programming but dont even think that i will be easy...i am gonna fuck u all and become the best programmer ever existed on the face of the earth...
